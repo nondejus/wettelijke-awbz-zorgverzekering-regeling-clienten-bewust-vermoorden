@@ -1,1 +1,1 @@
-# wettelijke-awbz-zorgverzekering-clienten-bewust-vermoorden
+# wettelijke-awbz-zorgverzekering-regeling-clienten-bewust-vermoorden
